@@ -1,0 +1,1 @@
+ARTÍCULO 1º BIS) Prohíbese la instalación y/o habilitación de talleres mecánicos, de electricidad, de chapa y pintura y afines; gomerías que presten servicios al Transporte Pesado; en las Sub Áreas Urbanizadas 1 y 2 (SAU 1 - SAU 2).-
