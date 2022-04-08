@@ -1,0 +1,1 @@
+ARTÍCULO 3º) Instase al Centro de Ex Alumnos del mencionado Instituto a requerir de ============= las fuerzas de seguridad competentes, Unidad Sanitaria y Bomberos Voluntarios, la colaboración para el mejor resguardo de la seguridad y ordenamiento en los actos que se le autorizan por la presente Ordenanza.-

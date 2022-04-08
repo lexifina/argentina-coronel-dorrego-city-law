@@ -1,0 +1,7 @@
+ARTÍCULO 7º) Comuníquese al Departamento Ejecutivo, demás que corresponda, ============= dese al Registro Oficial y oportunamente archívese.-
+SALA DE SESIONES, 23 de septiembre de 2021.-
+María Alicia Jalle Gastón Nomdedeu
+SECRETARIA LEGISLATIVA PRESIDENTE
+H. CONCEJO DELIBERANTE H. CONCEJO DELIBERANTE
+REGISTRADA BAJO EL NÚMERO: 4145/21
+REGISTRADA BAJO EL NÚMERO: 4145/21
