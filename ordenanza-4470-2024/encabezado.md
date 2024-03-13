@@ -1,0 +1,40 @@
+Ordenanza Nº4470/23
+Ordenanza Nº 4470/23
+Coronel Dorrego, 09/11/2023
+VISTO:
+El 30 de octubre se conmemora el 40º aniversario de la recuperación de la Democracia en nuestro País; y
+CONSIDERANDO:
+Que este hecho es muy caro a los sentimientos de todos los argentinos.
+Que el 30 de octubre de 1983, Raúl Alfonsín fue elegido presidente tras más de siete años de dictadura militar.
+Que en múltiples sentidos, aquella jornada marcó un antes y un después para la historia argentina y su sistema político.
+Que el 30 de octubre de 1983 se convirtió en un momento histórico que se celebraría a partir de entonces, en toda la Argentina.
+Que se trata nada menos que del Día de la Restauración de la Democracia, de la recuperación del Estado de Derecho y el fin definitivo de la última dictadura militar, que se había instaurado el 24 de marzo de 1976, y que dejó 30 mil desaparecidos.
+Que la Comisión Nacional sobre la Desaparición de Personas (CONADEP) fue creada por Raúl Alfonsín el 15 de diciembre de 1983, cinco días después de asumir la presidencia, con el objetivo de aclarar e investigar la desaparición forzada de personas producidas durante la dictadura militar en Argentina, dando origen al Informe "Nunca Más", también conocido como "Informe Sábato", publicado en 1984.
+Que Raúl Alfonsín nació en Chascomús el 12 de marzo de 1927. Fue desde siempre militante de la Unión Cívica Radical a la par que se recibía de abogado en 1950. Posteriormente obtuvo un doctorado.
+Que Dicha militancia lo llevó por un lado a ser varias veces Presidente del Comité Nacional de la Unión Cívica Radical (10 de diciembre de 1983-10 de diciembre de 1991; 10 de diciembre de 1993-10 de diciembre de 1995; y 10 de diciembre de 1999-10 de diciembre de 2001).
+Que en consecuencia fue electo Concejal de su querida ciudad (7 de mayo de 1954-21 de septiembre de 1955) y posteriormente Diputado Provincial por su sección electoral (la V) del 1 de mayo de 1958 al 29 de marzo de 1962.
+Que defender los Derechos Humanos fue un objetivo en su vida, tal es así que en 1975 contribuyó a la creación de la Asamblea Permanente por los Derechos Humanos (APDH). Esta asociación fue la primera creada en Argentina para hacer frente a las violaciones sistemáticas de los derechos humanos que en aquella época comenzaron con la actividad de la Alianza Anticomunista Argentina (AAA o "Triple A").
+Que tuvo especial impacto la cruenta Guerra de Malvinas en 1982. Alfonsín, asesorado por un grupo de intelectuales como Jorge Roulet, Dante Caputo y Jorge Sabato, fue uno de los políticos argentinos que se opuso a la acción militar en las Islas Malvinas y sostuvo que la finalidad de la misma era lograr el fortalecimiento de la dictadura, además exigió al gobierno militar que proveyera información verídica sobre la marcha del conflicto.
+Que Raúl Alfonsín fue electo Diputado Nacional (25 de mayo de 1973-24 de marzo de 1976; y 12 de octubre de 1963-28 de junio de 1966) para posteriormente ejercer el máximo cargo político e institucional de nuestro país, la Presidencia de la Nación (10 de diciembre de 1983-8 de julio de 1989), obteniendo la banda presidencial de manos de la dictadura genocida que tanto había contribuido a combatir.
+Que en el plano económico y social, la situación en la que asumió el gobierno era realmente desfavorable, interna y externamente. Tras un inicio favorable con el Plan Austral sufrió una crisis económica que marcaría su gobierno.
+Que fue uno de los cuestionadores de la fuerte deuda externa heredada y que asolaba a otros países latinoamericanos y fue visionario al impulsar acuerdos globales como el futuro MERCOSUR.
+Que en el aspecto internacional fue determinante el logro del acuerdo de paz con Chile y la nueva inserción de Argentina en el mundo tras los crímenes de la dictadura militar.
+Que entre otros importantes hitos es imprescindible citar la celebración de un Congreso Pedagógico nacional, el lanzamiento del Plan Alimentario Nacional contra la pobreza, el Plan de Alfabetización así como la sanción de la Ley de divorcio y la patria potestad compartida.
+Que tras ejercer la Presidencia tuvo una relevante actuación en el devenir histórico y político de nuestro país ayudando a garantizar que se mantenga la democracia siendo, entre otros cargos, Senador de la Nación Argentina por la Provincia de Buenos Aires (10 de diciembre de 2001-3 de julio de 2002) y Convencional Constituyente de la Nación Argentina por Buenos Aires (1 de mayo de 1994-22 de agosto de 1994).
+Que, en definitiva, mencionada ya parte de la historia como Presidente, nos convoca una pregunta: ¿Qué representó y qué representará Raúl Alfonsín para los argentinos?…..Su figura representa el valor de la honestidad y honradez. Su vida demostró que su obrar virtuoso fue inspirador no solo para quienes hacemos política sino para los ciudadanos que vieron en él un líder a seguir…..
+Que fue inobjetable también el valor y coraje con el cual respondió a la hora histórica que le tocó vivir. El regreso a la democracia, para lo cual luchó firmemente contra el régimen de la dictadura instándola por volver a tener elecciones libres, fue testigo de su compromiso en el juzgamiento a las juntas militares. Cabe recordar que en aquella época otros líderes políticos se oponían al juicio y que para lograrlo debió sortear diversos obstáculos legales.
+Que en palabras del prestigioso jurista Carlos Nino, en su obra "Juicio al Mal Absoluto", expresa que se trató de un hito histórico a nivel mundial, ya que no era común que sus propios conciudadanos juzguen, condenen y encarcelen a sus dictadores. O bien existían amnistías o bien los juzgaban tribunales internacionales.
+Que el Dr. Raúl Alfonsín fue realmente un Demócrata, no censuró ni proscribió a nadie que no opinase como él, en definitiva un ejemplo de vida cívica.
+Que creemos firmemente que su vida trascenderá mucho más allá de su tiempo, más allá de cualquier página escrita en los libros de historia, Alfonsín representa la imagen del dirigente político cercano al pueblo, honesto, decente y modesto, estadista de gran reconocimiento internacional y una persona sensible intachable, sobre la cual no existirá una mancha que empañe su integridad.
+Que con basamento en su historia, sus logros, sus reconocimientos, su hombría de bien y su valentía, y en honor a su compromiso que lo convirtió en el “Padre de la Democracia”, consideramos que el pueblo de Coronel Dorrego todavía le adeuda un homenaje.
+Que el HCD reconoce personalidades de toda índole, que han atravesado las épocas y la historia, de nuestro Distrito, y también de nuestro país.
+Que no podemos olvidar el gran legado que el Dr. Alfonsín dejó para todos los ciudadanos argentinos, en uno de sus discursos inolvidables que no pierde vigencia…. “la democracia es un valor más alto que el de una mera forma de legitimidad del poder, porque con la democracia no solo se vota, sino que también se come, se educa y se cura”….
+Que creemos oportuno en el marco del 40 aniversario del retorno a la democracia, honrarlo nominando uno de los lugares que convoca a todo el pueblo de Coronel Dorrego, que es elegido por el municipio, instituciones intermedias, agrupaciones, músicos, deportistas, expositores, instituciones educativas, emprendedores y artesanos, para llevar adelante múltiples propuestas de manifestación popular.
+Que es además el lugar que conglomera a las familias, todo el año. Donde juntos disfrutan de un espacio que es de todos los dorreguenses, al igual que la democracia.
+Que el Parque Municipal aglutina diferentes sectores donde se ha previsto la sectorización de distintas actividades.
+Que en sus inicios se proyectó en el lugar la Producción forestal o vegetal, pero en las últimas décadas se ha diversificado el destino de las parcelas.
+Que en la actualidad los sectores que tiene más afluencia dentro del Predio es la destinada a la recreación familiar.
+Que este Cuerpo Deliberativo considera oportuno, nominar el predio general y delimitar el sector de producción.
+POR TODO ELLO, el HONORABLE CONCEJO DELIBERANTE, en uso de facultades que le son propias, dicta la siguiente:
+ORDENANZA:
+ORDENANZA
