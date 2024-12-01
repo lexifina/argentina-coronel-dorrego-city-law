@@ -1,0 +1,5 @@
+Ordenanza Nº4571/2024
+Ordenanza Nº 4571/2024
+Coronel Dorrego, 28/08/2024
+VISTO: La 17 ° edición de la Fiesta de los Alemanes del Volga a realizarse el día 8 de septiembre del presente año en la localidad de El Perdido; y CONSIDERANDO: Que dicha celebración se ha convertido en una de las fiestas más representativas de la localidad de El Perdido. Que año tras año se evidencia el crecimiento de la convocatoria de la fiesta, incluyendo a personas de la localidad, del distrito y de la región. Que en este evento revalorizan las tradiciones alemanas mediante danzas, gastronomía, música en vivo y diversos entretenimientos. Que la colectividad de los Alemanes del Volga arribó a la zona de El Perdido entre 1897 y 1910 otorgándole un sello distintivo a la misma, marcando toda su historia y sus manifestaciones societarias. Que estas celebraciones populares son más que relevantes para transmitir las costumbres típicas a las generaciones futuras y que pervivan en el tiempo. POR TODO ELLO, el HONORABLE CONCEJO DELIBERANTE, en uso de facultades que le son propias, dicta la siguiente: ORDENANZA:
+ORDENANZA
