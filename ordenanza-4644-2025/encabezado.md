@@ -1,0 +1,5 @@
+Ordenanza Nº4644/2025
+Ordenanza Nº 4644/2025
+Coronel Dorrego, 26/02/2025
+VISTO: La nota elevada por la Agrupación Gaucha Los de Fierro, de la localidad de El Perdido; y CONSIDERANDO: Que la entidad tradicionalista requiere la autorización correspondiente para hacer uso de los espacios públicos de dicha localidad durante los días 1, 8 y 9 de marzo con motivo de la realización de su 30º Fiesta Anual Tradicionalista. Que es necesario el apoyo a todas las muestras desinteresadas de la sociedad civil que apuntan a lo cultural y tradicional, trazando un norte puesto en el aspecto identitario de nuestro sur bonaerense. Que es facultad de este Honorable Concejo Deliberante la autorización de espectáculos públicos y la reglamentación del uso de espacios y calles, correspondientes a la jurisdicción municipal (Art. 27 incisos concordantes de la Ley Orgánica de las Municipalidades). POR TODO ELLO, el HONORABLE CONCEJO DELIBERANTE, en uso de facultades que le son propias, dicta la siguiente: ORDENANZA
+ORDENANZA
