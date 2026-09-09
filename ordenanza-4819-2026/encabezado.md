@@ -1,0 +1,8 @@
+Ordenanza Nº4819/2026
+Ordenanza Nº 4819/2026
+Coronel Dorrego, 27/05/2026
+VISTO: La Ordenanza Nº 4674/25, que crea el Programa Tu Lugar – Acceso al Terreno para la primera vivienda, a través del cual se autoriza al Municipio a vender, con destino a la construcción de vivienda única, los terrenos pertenecientes al Municipio; y
+CONSIDERANDO: Que la Ordenanza Nº 4674/25 establece las condiciones de inscripción al Programa, como así también las prioridades, plazos, tipo de documentación a presentar, el modo de inscripción, condiciones de adjudicación, impugnaciones, tasaciones de los lotes y sanciones.
+Que, por otra parte, la Ley Provincial 14.449 faculta a los Municipios a implementar distintas acciones tendientes a proveer suelo urbanizable en centros urbanos, desarrollar nuevas áreas residenciales mediante la construcción de viviendas, impulsar programas de construcción y/o reparación de viviendas. Que en el marco de la Ordenanza Nº 4674/25, éste Municipio pondrá a la venta en la ciudad cabecera, bajo las condiciones establecidas en la mencionada norma, nueve terrenos de propiedad municipal del Distrito de Coronel Dorrego.
+Que según lo fijado en la Ordenanza mencionada, al tratarse de lotes con finalidad social, se fija la intransferibilidad de los mismos al menos durante diez años, dando la violación de cláusula la potestad a la Municipalidad a exigir del comprador originario la diferencia resultante entre el valor del terreno y el importe del precio pactado. POR TODO ELLO, el HONORABLE CONCEJO DELIBERANTE, en uso de facultades que le son propias, dicta la siguiente: ORDENANZA
+ORDENANZA
