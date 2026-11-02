@@ -1,0 +1,11 @@
+{
+  "path": "ar-b-coronel-dorrego",
+  "code": "AR-B-CORONEL-DORREGO",
+  "name": "Coronel Dorrego",
+  "level": "municipality",
+  "parent": "ar-b",
+  "repo": "https://github.com/lexifina/argentina-coronel-dorrego-city-law",
+  "build": "built: municipal ordinances (185 ordinances, 185 versions) from https://sibom.slyt.gba.gob.ar/cities/26",
+  "language": "es",
+  "sources": 1
+}
